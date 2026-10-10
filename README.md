@@ -1,2 +1,0 @@
-# CAFEBEY
-PROJE
